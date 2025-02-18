@@ -10,6 +10,7 @@
 
 ---
 🎮 Vamos nos conectar e trocar ideias sobre projetos ou, quem sabe, aquele jogo épico que nunca sai da minha lista de favoritos. 🚀
+
 🟦 LinkedIn: https://br.linkedin.com/in/lucas-dos-santos-batista-688046174
 
 <!---
